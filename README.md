@@ -1,1 +1,1 @@
-# tiendaropa
+Por favor ver el video enviado con la descripcion del sistema
